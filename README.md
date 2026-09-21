@@ -1,0 +1,1 @@
+# 2-CSP-terminal-ops-pickup-checklist
